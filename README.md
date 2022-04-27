@@ -9,7 +9,7 @@ Let me help.
 - 🤔 I’m looking for help with online publishing
 - 💬 Ask me about how you can get help
 - 📫 How to reach me: traci@traciolsen.com
-- 😄 Pronouns: she/he
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I used to be a jeweler.
 
 <!--
